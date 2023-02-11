@@ -2,8 +2,8 @@
 # Minesraft2 (OneMinesraft2)
 Owner of the best [Blooket Cheats](https://github.com/Minesraft2/Blooket-Cheats) repository
 ## Discord
-* [Support Server (Kingdom of Jod)](https://discord.gg/QerPBatcca)
-* [My Profile (OneMinesraft2#5394)](https://discord.com/users/600356507829141544)
+* [Support Server (Kingdom of Jod)](https://discord.gg/QznzysxvX4)
+* [My Profile (OneMinesraft2#5394)](https://discord.com/users/944805064097276015)
 <!-- ## -->
 <!-- <img src="https://user-images.githubusercontent.com/49218878/208312022-c7230243-9716-412a-b8b0-09c458a63aaf.png"> -->
 <!--
